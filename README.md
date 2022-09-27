@@ -1,3 +1,5 @@
+![](https://count.getloli.com/get/@BlueBearDiary)
+
 1. 升旗仪式缺一次扣20分
 2. 违纪扣10～20分
 3. 网课打卡少打一次扣5分
