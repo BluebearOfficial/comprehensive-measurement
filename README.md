@@ -1,4 +1,4 @@
-![](https://count.getloli.com/get/@BlueBearDiary)
+![](https://count.getloli.com/get/@comprehensivemeasurement)
 
 1. 升旗仪式缺一次扣20分
 2. 违纪扣10～20分
